@@ -1,4 +1,3 @@
-[channels4_profile-removebg-preview](https://user-images.githubusercontent.com/85667199/144255034-2101aca3-05c5-4280-9226-278da51415a4.png)
 ## Welcome to PARALOGAM
 
 Paralogam RP Is Smp Server Tamil Players Only Server Our Server 24/7 Play With Happyness
@@ -35,26 +34,6 @@ Dont Forget To Join Our Discord Community
 𝐍𝐨𝐭𝐞: 𝐓𝐡𝐞𝐬𝐞 𝐫𝐮𝐥𝐞𝐬 𝐜𝐨𝐧𝐭𝐚𝐢𝐧𝐬 𝐛𝐨𝐭𝐡 𝐃𝐈𝐒𝐂𝐎𝐑𝐃 𝐚𝐧𝐝 𝐏𝐀𝐑𝐀𝐋𝐎𝐆𝐀𝐌𝐑𝐏 𝐫𝐮𝐥𝐞𝐬.
 
 
-# PARALOGAM RP 
-## OUR HOST
-### FEATURES
+## Visa Applay :
 
-- Bulleted
-- List
-
-1. Numbered
-2. List
-
-**Bold** and _Italic_ and `Code` text
-
-
-
-For more details see [Basic writing and formatting syntax](https://docs.github.com/en/github/writing-on-github/getting-started-with-writing-and-formatting-on-github/basic-writing-and-formatting-syntax).
-
-### Jekyll Themes
-
-Your Pages site will use the layout and styles from the Jekyll theme you have selected in your [repository settings](https://github.com/amostaiy/paralogamrp.github.io/settings/pages). The name of this theme is saved in the Jekyll `_config.yml` configuration file.
-
-### Support or Contact
-
-Having trouble with Pages? Check out our [documentation](https://docs.github.com/categories/github-pages-basics/) or [contact support](https://support.github.com/contact) and we’ll help you sort it out.
+Google Form: https://forms.gle/WWiYMdSDvvYwpQxD7
