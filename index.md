@@ -8,31 +8,31 @@ Dont Forget To Join Our Discord Community
 ### Rules For Discord
 
 𝐃𝐈𝐒𝐂𝐎𝐑𝐃 𝐑𝐔𝐋𝐄𝐒
-Please read through the rules to avoid getting .This is for all community members. Players and Staff members.
+𝐏𝐥𝐞𝐚𝐬𝐞 𝐫𝐞𝐚𝐝 𝐭𝐡𝐫𝐨𝐮𝐠𝐡 𝐭𝐡𝐞 𝐫𝐮𝐥𝐞𝐬 𝐭𝐨 𝐚𝐯𝐨𝐢𝐝 𝐠𝐞𝐭𝐭𝐢𝐧𝐠 .𝐓𝐡𝐢𝐬 𝐢𝐬 𝐟𝐨𝐫 𝐚𝐥𝐥 𝐜𝐨𝐦𝐦𝐮𝐧𝐢𝐭𝐲 𝐦𝐞𝐦𝐛𝐞𝐫𝐬. 𝐏𝐥𝐚𝐲𝐞𝐫𝐬 𝐚𝐧𝐝 𝐒𝐭𝐚𝐟𝐟 𝐦𝐞𝐦𝐛𝐞𝐫𝐬.
 
-1.You are not allowed to say any racist remarks/slurs!
+𝟏.𝐘𝐨𝐮 𝐚𝐫𝐞 𝐧𝐨𝐭 𝐚𝐥𝐥𝐨𝐰𝐞𝐝 𝐭𝐨 𝐬𝐚𝐲 𝐚𝐧𝐲 𝐫𝐚𝐜𝐢𝐬𝐭 𝐫𝐞𝐦𝐚𝐫𝐤𝐬/𝐬𝐥𝐮𝐫𝐬!
 
-Users are requested to keep a wallpaper as AVATAR. Keeping your Photos may leak your privacy. (Optional)
+𝐔𝐬𝐞𝐫𝐬 𝐚𝐫𝐞 𝐫𝐞𝐪𝐮𝐞𝐬𝐭𝐞𝐝 𝐭𝐨 𝐤𝐞𝐞𝐩 𝐚 𝐰𝐚𝐥𝐥𝐩𝐚𝐩𝐞𝐫 𝐚𝐬 𝐀𝐕𝐀𝐓𝐀𝐑. 𝐊𝐞𝐞𝐩𝐢𝐧𝐠 𝐲𝐨𝐮𝐫 𝐏𝐡𝐨𝐭𝐨𝐬 𝐦𝐚𝐲 𝐥𝐞𝐚𝐤 𝐲𝐨𝐮𝐫 𝐩𝐫𝐢𝐯𝐚𝐜𝐲. (𝐎𝐩𝐭𝐢𝐨𝐧𝐚𝐥)
 
-3.Do not constantly spam! (This includes spamming the chats/channels, spamming links, spamming mentioning players, etc.)
+𝟑.𝐃𝐨 𝐧𝐨𝐭 𝐜𝐨𝐧𝐬𝐭𝐚𝐧𝐭𝐥𝐲 𝐬𝐩𝐚𝐦! (𝐓𝐡𝐢𝐬 𝐢𝐧𝐜𝐥𝐮𝐝𝐞𝐬 𝐬𝐩𝐚𝐦𝐦𝐢𝐧𝐠 𝐭𝐡𝐞 𝐜𝐡𝐚𝐭𝐬/𝐜𝐡𝐚𝐧𝐧𝐞𝐥𝐬, 𝐬𝐩𝐚𝐦𝐦𝐢𝐧𝐠 𝐥𝐢𝐧𝐤𝐬, 𝐬𝐩𝐚𝐦𝐦𝐢𝐧𝐠 𝐦𝐞𝐧𝐭𝐢𝐨𝐧𝐢𝐧𝐠 𝐩𝐥𝐚𝐲𝐞𝐫𝐬, 𝐞𝐭𝐜.)
 
-4.You are not allowed to post any piracy content, as it breaches Discord TOS!
+𝟒.𝐘𝐨𝐮 𝐚𝐫𝐞 𝐧𝐨𝐭 𝐚𝐥𝐥𝐨𝐰𝐞𝐝 𝐭𝐨 𝐩𝐨𝐬𝐭 𝐚𝐧𝐲 𝐩𝐢𝐫𝐚𝐜𝐲 𝐜𝐨𝐧𝐭𝐞𝐧𝐭, 𝐚𝐬 𝐢𝐭 𝐛𝐫𝐞𝐚𝐜𝐡𝐞𝐬 𝐃𝐢𝐬𝐜𝐨𝐫𝐝 𝐓𝐎𝐒!
 
-5.Advertising other communities, fishing players into other servers/communities, inviting people from our community to join another as a method to draft players is STRICTLY not allowed! This INCLUDES requesting assistance in creative work from our Staff and other community members in an attempt to gain their arbitrary benefits and knowledge for your own servers/communities!
+𝟓.𝐀𝐝𝐯𝐞𝐫𝐭𝐢𝐬𝐢𝐧𝐠 𝐨𝐭𝐡𝐞𝐫 𝐜𝐨𝐦𝐦𝐮𝐧𝐢𝐭𝐢𝐞𝐬, 𝐟𝐢𝐬𝐡𝐢𝐧𝐠 𝐩𝐥𝐚𝐲𝐞𝐫𝐬 𝐢𝐧𝐭𝐨 𝐨𝐭𝐡𝐞𝐫 𝐬𝐞𝐫𝐯𝐞𝐫𝐬/𝐜𝐨𝐦𝐦𝐮𝐧𝐢𝐭𝐢𝐞𝐬, 𝐢𝐧𝐯𝐢𝐭𝐢𝐧𝐠 𝐩𝐞𝐨𝐩𝐥𝐞 𝐟𝐫𝐨𝐦 𝐨𝐮𝐫 𝐜𝐨𝐦𝐦𝐮𝐧𝐢𝐭𝐲 𝐭𝐨 𝐣𝐨𝐢𝐧 𝐚𝐧𝐨𝐭𝐡𝐞𝐫 𝐚𝐬 𝐚 𝐦𝐞𝐭𝐡𝐨𝐝 𝐭𝐨 𝐝𝐫𝐚𝐟𝐭 𝐩𝐥𝐚𝐲𝐞𝐫𝐬 𝐢𝐬 𝐒𝐓𝐑𝐈𝐂𝐓𝐋𝐘 𝐧𝐨𝐭 𝐚𝐥𝐥𝐨𝐰𝐞𝐝! 𝐓𝐡𝐢𝐬 𝐈𝐍𝐂𝐋𝐔𝐃𝐄𝐒 𝐫𝐞𝐪𝐮𝐞𝐬𝐭𝐢𝐧𝐠 𝐚𝐬𝐬𝐢𝐬𝐭𝐚𝐧𝐜𝐞 𝐢𝐧 𝐜𝐫𝐞𝐚𝐭𝐢𝐯𝐞 𝐰𝐨𝐫𝐤 𝐟𝐫𝐨𝐦 𝐨𝐮𝐫 𝐒𝐭𝐚𝐟𝐟 𝐚𝐧𝐝 𝐨𝐭𝐡𝐞𝐫 𝐜𝐨𝐦𝐦𝐮𝐧𝐢𝐭𝐲 𝐦𝐞𝐦𝐛𝐞𝐫𝐬 𝐢𝐧 𝐚𝐧 𝐚𝐭𝐭𝐞𝐦𝐩𝐭 𝐭𝐨 𝐠𝐚𝐢𝐧 𝐭𝐡𝐞𝐢𝐫 𝐚𝐫𝐛𝐢𝐭𝐫𝐚𝐫𝐲 𝐛𝐞𝐧𝐞𝐟𝐢𝐭𝐬 𝐚𝐧𝐝 𝐤𝐧𝐨𝐰𝐥𝐞𝐝𝐠𝐞 𝐟𝐨𝐫 𝐲𝐨𝐮𝐫 𝐨𝐰𝐧 𝐬𝐞𝐫𝐯𝐞𝐫𝐬/𝐜𝐨𝐦𝐦𝐮𝐧𝐢𝐭𝐢𝐞𝐬!
 
-6.You are not allowed to spam staff members on Discord regarding actions, be calm and patient. Message/mention them only ONCE and await their response.
+𝟔.𝐘𝐨𝐮 𝐚𝐫𝐞 𝐧𝐨𝐭 𝐚𝐥𝐥𝐨𝐰𝐞𝐝 𝐭𝐨 𝐬𝐩𝐚𝐦 𝐬𝐭𝐚𝐟𝐟 𝐦𝐞𝐦𝐛𝐞𝐫𝐬 𝐨𝐧 𝐃𝐢𝐬𝐜𝐨𝐫𝐝 𝐫𝐞𝐠𝐚𝐫𝐝𝐢𝐧𝐠 𝐚𝐜𝐭𝐢𝐨𝐧𝐬, 𝐛𝐞 𝐜𝐚𝐥𝐦 𝐚𝐧𝐝 𝐩𝐚𝐭𝐢𝐞𝐧𝐭. 𝐌𝐞𝐬𝐬𝐚𝐠𝐞/𝐦𝐞𝐧𝐭𝐢𝐨𝐧 𝐭𝐡𝐞𝐦 𝐨𝐧𝐥𝐲 𝐎𝐍𝐂𝐄 𝐚𝐧𝐝 𝐚𝐰𝐚𝐢𝐭 𝐭𝐡𝐞𝐢𝐫 𝐫𝐞𝐬𝐩𝐨𝐧𝐬𝐞.
 
-7.Avoid using caps. (Although it's not forbidden, try to minimize it as much as possible)
+𝟕.𝐀𝐯𝐨𝐢𝐝 𝐮𝐬𝐢𝐧𝐠 𝐜𝐚𝐩𝐬. (𝐀𝐥𝐭𝐡𝐨𝐮𝐠𝐡 𝐢𝐭'𝐬 𝐧𝐨𝐭 𝐟𝐨𝐫𝐛𝐢𝐝𝐝𝐞𝐧, 𝐭𝐫𝐲 𝐭𝐨 𝐦𝐢𝐧𝐢𝐦𝐢𝐳𝐞 𝐢𝐭 𝐚𝐬 𝐦𝐮𝐜𝐡 𝐚𝐬 𝐩𝐨𝐬𝐬𝐢𝐛𝐥𝐞)
 
-8.Do not insult anyone part of our community. (Members and Staff included)
+𝟖.𝐃𝐨 𝐧𝐨𝐭 𝐢𝐧𝐬𝐮𝐥𝐭 𝐚𝐧𝐲𝐨𝐧𝐞 𝐩𝐚𝐫𝐭 𝐨𝐟 𝐨𝐮𝐫 𝐜𝐨𝐦𝐦𝐮𝐧𝐢𝐭𝐲. (𝐌𝐞𝐦𝐛𝐞𝐫𝐬 𝐚𝐧𝐝 𝐒𝐭𝐚𝐟𝐟 𝐢𝐧𝐜𝐥𝐮𝐝𝐞𝐝)
 
-9.We are primarily English, but we love having other language speakers in our server. Please use designated language channels when speaking in your native tongue.
+𝟗.𝐖𝐞 𝐚𝐫𝐞 𝐩𝐫𝐢𝐦𝐚𝐫𝐢𝐥𝐲 𝐄𝐧𝐠𝐥𝐢𝐬𝐡, 𝐛𝐮𝐭 𝐰𝐞 𝐥𝐨𝐯𝐞 𝐡𝐚𝐯𝐢𝐧𝐠 𝐨𝐭𝐡𝐞𝐫 𝐥𝐚𝐧𝐠𝐮𝐚𝐠𝐞 𝐬𝐩𝐞𝐚𝐤𝐞𝐫𝐬 𝐢𝐧 𝐨𝐮𝐫 𝐬𝐞𝐫𝐯𝐞𝐫. 𝐏𝐥𝐞𝐚𝐬𝐞 𝐮𝐬𝐞 𝐝𝐞𝐬𝐢𝐠𝐧𝐚𝐭𝐞𝐝 𝐥𝐚𝐧𝐠𝐮𝐚𝐠𝐞 𝐜𝐡𝐚𝐧𝐧𝐞𝐥𝐬 𝐰𝐡𝐞𝐧 𝐬𝐩𝐞𝐚𝐤𝐢𝐧𝐠 𝐢𝐧 𝐲𝐨𝐮𝐫 𝐧𝐚𝐭𝐢𝐯𝐞 𝐭𝐨𝐧𝐠𝐮𝐞.
 
-10.You are not allowed to post any content that has viruses. If Management found any malicious activities, they will be reported to discord.com . Then you may loose your account and you may recover it.
+𝟏𝟎.𝐘𝐨𝐮 𝐚𝐫𝐞 𝐧𝐨𝐭 𝐚𝐥𝐥𝐨𝐰𝐞𝐝 𝐭𝐨 𝐩𝐨𝐬𝐭 𝐚𝐧𝐲 𝐜𝐨𝐧𝐭𝐞𝐧𝐭 𝐭𝐡𝐚𝐭 𝐡𝐚𝐬 𝐯𝐢𝐫𝐮𝐬𝐞𝐬. 𝐈𝐟 𝐌𝐚𝐧𝐚𝐠𝐞𝐦𝐞𝐧𝐭 𝐟𝐨𝐮𝐧𝐝 𝐚𝐧𝐲 𝐦𝐚𝐥𝐢𝐜𝐢𝐨𝐮𝐬 𝐚𝐜𝐭𝐢𝐯𝐢𝐭𝐢𝐞𝐬, 𝐭𝐡𝐞𝐲 𝐰𝐢𝐥𝐥 𝐛𝐞 𝐫𝐞𝐩𝐨𝐫𝐭𝐞𝐝 𝐭𝐨 𝐝𝐢𝐬𝐜𝐨𝐫𝐝.𝐜𝐨𝐦 . 𝐓𝐡𝐞𝐧 𝐲𝐨𝐮 𝐦𝐚𝐲 𝐥𝐨𝐨𝐬𝐞 𝐲𝐨𝐮𝐫 𝐚𝐜𝐜𝐨𝐮𝐧𝐭 𝐚𝐧𝐝 𝐲𝐨𝐮 𝐦𝐚𝐲 𝐫𝐞𝐜𝐨𝐯𝐞𝐫 𝐢𝐭.
 
-11. You are requested, NOT to go invisible mod when online. So we will be in contact.
+𝟏𝟏. 𝐘𝐨𝐮 𝐚𝐫𝐞 𝐫𝐞𝐪𝐮𝐞𝐬𝐭𝐞𝐝, 𝐍𝐎𝐓 𝐭𝐨 𝐠𝐨 𝐢𝐧𝐯𝐢𝐬𝐢𝐛𝐥𝐞 𝐦𝐨𝐝 𝐰𝐡𝐞𝐧 𝐨𝐧𝐥𝐢𝐧𝐞. 𝐒𝐨 𝐰𝐞 𝐰𝐢𝐥𝐥 𝐛𝐞 𝐢𝐧 𝐜𝐨𝐧𝐭𝐚𝐜𝐭.
 
-Note: These rules contains both DISCORD and PARALOGAMRP rules.
+𝐍𝐨𝐭𝐞: 𝐓𝐡𝐞𝐬𝐞 𝐫𝐮𝐥𝐞𝐬 𝐜𝐨𝐧𝐭𝐚𝐢𝐧𝐬 𝐛𝐨𝐭𝐡 𝐃𝐈𝐒𝐂𝐎𝐑𝐃 𝐚𝐧𝐝 𝐏𝐀𝐑𝐀𝐋𝐎𝐆𝐀𝐌𝐑𝐏 𝐫𝐮𝐥𝐞𝐬.
 
 
 # PARALOGAM RP 
