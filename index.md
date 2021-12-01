@@ -3,12 +3,49 @@
 Paralogam RP Is Smp Server Tamil Players Only Server Our Server 24/7 Play With Happyness
 Dont Forget To Join Our Discord Community At dsc.gg/paralogam
 
-### Markdown
+### Our Server Rules 
+Rules For Discord:
 
-Markdown is a lightweight and easy-to-use syntax for styling your writing. It includes conventions for
+**DISCORD RULES
+Please read through the rules to avoid getting .This is for all community members. Players and Staff members.
 
-```markdown
-Syntax highlighted code block
+1.You are not allowed to say any racist remarks/slurs!
+
+Users are requested to keep a wallpaper as AVATAR. Keeping your Photos may leak your privacy. (Optional)
+
+3.Do not constantly spam! (This includes spamming the chats/channels, spamming links, spamming mentioning players, etc.)
+
+4.You are not allowed to post any piracy content, as it breaches Discord TOS!
+
+5.Advertising other communities, fishing players into other servers/communities, inviting people from our community to join another as a method to draft players is STRICTLY not allowed! This INCLUDES requesting assistance in creative work from our Staff and other community members in an attempt to gain their arbitrary benefits and knowledge for your own servers/communities!
+
+6.You are not allowed to spam staff members on Discord regarding actions, be calm and patient. Message/mention them only ONCE and await their response.
+
+7.Avoid using caps. (Although it's not forbidden, try to minimize it as much as possible)
+
+8.Do not insult anyone part of our community. (Members and Staff included)
+
+9.We are primarily English, but we love having other language speakers in our server. Please use designated language channels when speaking in your native tongue.
+
+10.You are not allowed to post any content that has viruses. If Management found any malicious activities, they will be reported to discord.com . Then you may loose your account and you may recover it.
+
+11. You are requested, NOT to go invisible mod when online. So we will be in contact.
+
+Note: These rules contains both DISCORD and PARALOGAMRP rules.**
+
+INGAME RULES:
+
+PARALOGAM RULES:
+1) DO NOT BREAK BLOCK.
+2) ALWAYS SELL PRECIOUS ITEMS IN THE SHOP AND KEEP THEM AS MONEY (BEWARE OF THIEFS IN VILLAGE).
+3)DO NOT USE BUG TO EARN MONEY,IF ANY BUG INFORM TO US                          
+4)DONT KILL OTHERS HORSE(YOU CAN HUNT WILD HORSE).
+5)DONT DO RDM, INSTEAD YOU CAN CALL THE PERSON FOR FIGHT AND FIGHT INSIDE PVP STADIUM.
+6)YOU CAN BUILD YOUR OWN HOUSE OR BASE BUT IN ONE PLACE ONLY, DONT BUILD MUTIPLE BASES.IF YOU WANT A SECOND BASE THEN INFORM ADMINS AND GET PERMISSIONS TO BUILD SECOND BASE AND THEN BUILD.
+7)YOU CAN START YOUR OWN SHOP ANYWHERE YOU WANT (ALL ITEMS REQUIRED FOR CREATING SHOPS ARE AVAILABLE IN SHOP AREA NEAR TRESSURY).
+8)TREAT EVERYONE AS YOUR FRIEND AND DONT HURT ANYONE.
+9)DONT STEAL TORCHES.THEY ARE AVAILABLE IN SHOP AREA FOR LOW PRICES:).
+10)CREATE A KEY FOR UR HOUSE.KEEP YOUR KEY SAFELY OR THE ONLY WAY TO OPEN IS CALLING ADMINS TO PUT A MASTER KEY TO OPEN THE DOOR AND BREAKING IT.
 
 # PARALOGAM RP 
 ## OUR HOST
