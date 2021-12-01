@@ -1,7 +1,8 @@
 ## Welcome to PARALOGAM
 
 Paralogam RP Is Smp Server Tamil Players Only Server Our Server 24/7 Play With Happyness
-Dont Forget To Join Our Discord Community At [dsc.gg/paralog](url)
+Dont Forget To Join Our Discord Community At [dsc.gg/paralog](url) and ![Image](src)
+```
 
 ### Our Server Rules 
 Rules For Discord:
@@ -46,8 +47,7 @@ Note: These rules contains both DISCORD and PARALOGAMRP rules.
 
 **Bold** and _Italic_ and `Code` text
 
-[Link](url) and ![Image](src)
-```
+
 
 For more details see [Basic writing and formatting syntax](https://docs.github.com/en/github/writing-on-github/getting-started-with-writing-and-formatting-on-github/basic-writing-and-formatting-syntax).
 
