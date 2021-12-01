@@ -2,7 +2,6 @@
 
 Paralogam RP Is Smp Server Tamil Players Only Server Our Server 24/7 Play With Happyness
 Dont Forget To Join Our Discord Community At [dsc.gg/paralogam]
-Whenever you commit to this repository, GitHub Pages will run [Jekyll](https://jekyllrb.com/) to rebuild the pages in your site, from the content in your Markdown files.
 
 ### Markdown
 
