@@ -1,11 +1,10 @@
 ## Welcome to PARALOGAM
 
 Paralogam RP Is Smp Server Tamil Players Only Server Our Server 24/7 Play With Happyness
-Dont Forget To Join Our Discord Community At (dsc.gg/paralog)
+Dont Forget To Join Our Discord Community 
 
 
-### Our Server Rules 
-Rules For Discord:
+### Rules For Discord
 
 𝐃𝐈𝐒𝐂𝐎𝐑𝐃 𝐑𝐔𝐋𝐄𝐒
 Please read through the rules to avoid getting .This is for all community members. Players and Staff members.
